@@ -1,1 +1,12 @@
-# Mabisang-kumonikasyon.
+Pangalan: Ryn Alcayde           baitang at seksyon
+asignatura: Mabisang kumonikasyon      Guro: Bb. Sheara Marie 
+
+ Hulyo 31, 2026
+
+ Mahal kong Sarili,
+
+Isa sa pinakamalaking hamon na aking naranasan ay ang pagkakataong naisip kong sumuko sa aking pag-aaral. Dumating ako sa puntong na gusto ko na lamang magtrabaho dahil nahihirapan ako sa mga problemang aking kinakaharap. Pakiramdam ko noon ay hindi ko kayang ipagpatuloy ang aking pag-aaral. Ngunit naisip ko ang aking mga pangarap at ang magandang kinabukasang nais kong makamit, kaya pinili kong maging matatag at ipagpatuloy ang aking pag-aaral. Masaya ang kaganapang ito noong ako ay nag-aaral pa at maraming pagsubok ang aking kinakaharap kasama ko sa panahong iyon ang aking pamilya, mga guro, at mga kaibigan na patuloy na sumusuporta sa akin. Hindi man nila kayang alisin ang mga problema ko, lagi nila akong hinihikayat na huwag sumuko. Sa bahay at paaralan ko naranasan ang mga pagkakataong kailangan kong maging matatag. Dahil sa kanilang suporta, nagkaroon ako ng lakas upang ipagpatuloy ang aking pag-aaral. Bago ko harapin ang hamon, nakaramdam ako ng pagod, lungkot, at pangamba sa aking kinabukasan. Habang nararanasan ko ito, madalas kong naisip kung kaya ko pa bang ipagpatuloy ang aking pag-aaral. May mga pagkakataong gusto ko nang sumuko at piliin na lamang ang magtrabaho. Ngunit habang lumilipas ang panahon, napagtanto kong hindi dapat maging dahilan ang mga problema upang talikuran ko ang aking mga pangarap. Matapos kong malampasan ang hamon, nakaramdam ako ng saya, pasasalamat, at pagmamalaki sa aking sarili.
+Sa karanasang ito, natuklasan kong ako ay matatag, masipag, determinado, at hindi madaling sumuko. Natutuhan kong harapin ang mga pagsubok kahit minsan ay nakakaramdam ako ng takot, pagod. Natutunan ko rin na mahalagang maniwala sa sariling kakayahan. Dahil sa karanasang ito, naging mas matapang at responsable ako sa aking mga desisyon. Dinala ko ito upang maging isang taong patuloy na lumalaban para sa aking mga pangarap. Mahal kong Sarili, huwag mong kalimutang ipagpatuloy ang laban kahit gaano pa kahirap ang iyong pinagdadaanan. Pangako ko sa sarili ko na hindi ako basta-basta patitinag. Aking magsisikap upang kaming... ay makamit ko ang mapagandang kinabukasan pinapangarap ko. Kapag dumating muli ang mga pagsubok, alalahanin ko ang lahat ng hamong nalampasan ko. Naniniwala akong matatag, maniniwala sa aking sarili, at patuloy na magsikap hanggang sa makamit ko ang aking mga pangarap.
+
+ Nagmamahal,
+ RYN ALCAYDE 
